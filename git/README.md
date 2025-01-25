@@ -1,1 +1,1 @@
-Reading is good
+I love reading
